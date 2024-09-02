@@ -1,6 +1,6 @@
 # 𓍢ִ໋🌷͙֒ Meachelle Nicole A. Abella𓍢ִ໋🌷͙֒
 
-**` 🌱 Studying Computer Science, at Cebu Institute of Technolgit ogy University!`** 
+**` 🌱 Studying Computer Science, at Cebu Institute of Technology University!`** 
 
 
 <img align="right" width=100px height=100px alt="side_sticker" src="https://i.giphy.com/media/v1.Y2lkPTc5MGI3NjExemVqZDlxcXkzY2x1cWlpNXJ6dDJhNWVuaGEyZ2ZhaGEzMHFrdDVmZyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/S9REhzFTQyNXVa11cU/giphy.gif" />
