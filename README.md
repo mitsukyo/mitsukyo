@@ -5,7 +5,7 @@
 
 <img align="right" width=100px height=100px alt="side_sticker" src="https://i.giphy.com/media/v1.Y2lkPTc5MGI3NjExemVqZDlxcXkzY2x1cWlpNXJ6dDJhNWVuaGEyZ2ZhaGEzMHFrdDVmZyZlcD12MV9pbnRlcm5hbF9naWZfYnlfaWQmY3Q9cw/S9REhzFTQyNXVa11cU/giphy.gif" />
 
-<h5>˚˖𓍢ִ໋⋆ Currently contributing as a Cyber Security Consultant at EY, drawing on expertise in Governance, Risk Management, and Compliance (GRC). Pursued Bachelor of Science in Computer Science at Cebu Institute of Technology, graduated last May 2025. ༘⋆</h5>
+<h5>˚˖Call me Minche! I'm currently contributing as a Cyber Security Consultant at EY, drawing on expertise in Governance, Risk Management, and Compliance (GRC). Pursued Bachelor of Science in Computer Science at Cebu Institute of Technology, graduated last May 2025. ༘⋆</h5>
 
 
 </br>
